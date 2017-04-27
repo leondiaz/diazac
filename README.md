@@ -1,0 +1,2 @@
+# diazac
+Assalamu'alaikum
